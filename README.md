@@ -1,1 +1,1 @@
-# DeepikaSIngh.github.io
+# DeepikaSingh.github.io
